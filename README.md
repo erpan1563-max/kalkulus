@@ -1,0 +1,2 @@
+# kalkulus
+belajarr aja
